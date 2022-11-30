@@ -1,1 +1,1 @@
-:)
+It's our duty.
